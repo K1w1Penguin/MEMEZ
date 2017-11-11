@@ -1,0 +1,2 @@
+# MEMEZ
+https://discordapp.com/api/webhooks/378718494780293122/iKr7jQafiHvGjd4wp9em1XH2048EHEm1zGDgT0doTbtf4ztJ8R98FaR1BelLX
